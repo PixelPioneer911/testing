@@ -1,0 +1,1 @@
+https://openguessr.com/
